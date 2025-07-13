@@ -1,0 +1,1 @@
+# GX-Interview-Gunay-Mammadli
